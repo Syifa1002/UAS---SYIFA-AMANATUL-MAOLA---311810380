@@ -9,3 +9,6 @@
 # UAS-SYIFAAMANATULMAOLA-311810380
 ![image](https://user-images.githubusercontent.com/81507862/127098923-414f6df2-8d2c-4cc5-a2bf-9737f39cd767.png)
 ![image](https://user-images.githubusercontent.com/81507862/127098940-2ef6a9fb-0853-4751-9575-4da8cca3e740.png)
+![image](https://user-images.githubusercontent.com/81507862/127099278-da2c0f4a-146b-4f74-921c-b7a694e8b3bd.png)
+![image](https://user-images.githubusercontent.com/81507862/127099338-b878231b-2e79-478f-a0af-81067e3ac6d3.png)
+![image](https://user-images.githubusercontent.com/81507862/127099409-2d7d6ff7-5221-4427-8ee0-e89dffc6d33d.png)
